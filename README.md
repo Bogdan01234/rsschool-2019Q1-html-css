@@ -1,2 +1,2 @@
-Bogdan Lapatnev <br>
+Bahdan Lapatneu <br>
 HTML CSS Basics: https://www.codecademy.com/users/bogdanLapatnew0855090993/achievements
